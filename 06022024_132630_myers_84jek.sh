@@ -1,0 +1,1 @@
+An airplane mechanic invented Slinky while he was playing with engine parts and realized the possible secondary use for the springs. Barbie was invented by Ruth Handler after watching her daughter play with baby dolls imagining then in grown up roles
