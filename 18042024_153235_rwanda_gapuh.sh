@@ -1,0 +1,1 @@
+There is an area located off the south-eastern Atlantic coast of the United States called the "Bermuda Triangle." It is known for a high rate of unexplained losses of ships, small boats, and aircraft, which has led some people to believe that this triangle has supernatural powers
